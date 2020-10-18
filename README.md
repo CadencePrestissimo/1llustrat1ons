@@ -1,4 +1,4 @@
 # 1llustrat1ons
 I trying my hands on Illustrator.
-There are few Illustrations.
+These are few of my Illustrations.
 Hope you like them !
